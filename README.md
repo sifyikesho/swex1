@@ -1,6 +1,6 @@
 ## <a href="https://cutt.ly/Je14eISk">SWEET BONANZA GİRİŞ İÇİN TIKLAYIN</a>
 
-<a href="https://cutt.ly/Je14eISk"><img src="https://s7.gifyu.com/images/SXqrh.gif"></a>
+<a href="https://cutt.ly/Je14eISk"><img src="https://s7.gifyu.com/images/SXNlw.gif"></a>
 
 # Sweet Bonanza - Sweet Bonanza Giriş Adresi - Sweet Bonanza Güncel Giriş 2025
 
